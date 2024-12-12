@@ -6,11 +6,3 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-e<!---
-thomasmicail/thomasmicail is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-forex trade 
-10%-technical analysis
-20%-risk management-capital managemen
-70%-psychology
